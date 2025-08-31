@@ -23,7 +23,7 @@
 ---
 
 ## 📫 Contato
-- LinkedIn: [Seu LinkedIn aqui]
+- LinkedIn: (https://www.linkedin.com/in/alessandra-moura-moura/)
 - Email: xandamoura01@gmail.com
 
 ---
